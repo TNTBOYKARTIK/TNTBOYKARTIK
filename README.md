@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning JavaScript <br>
 - 👯 I’m looking to collaborate on ... <br>
 - 🤔 I’m looking for help with someone <br>
-- 💬 Ask me about on this link https://reviewrebook.anvil.app/ <br>
+- 💬 Ask me any doubt on this link https://reviewrebook.anvil.app/ <br>
 - 📫 How to reach me: There is no way to reach me 🤪🤪 <br>
